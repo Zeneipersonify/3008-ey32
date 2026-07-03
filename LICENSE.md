@@ -1,4 +1,4 @@
-#  
+#  premium Scripts for 3008 is the best 3008 Script, featuring undetectable and private server access. Safe and powerful for all your needs.
 
 
 
